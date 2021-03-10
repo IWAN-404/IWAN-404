@@ -11,7 +11,7 @@
 
 
 
-                 ☠️ THE FACK☠️
+                 🖕 THE FACK YOU 🖕
 
  
 
