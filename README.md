@@ -1,6 +1,6 @@
                ☠️ IWAN MAMANG HEKEL ☠️
 
-                      FACK YOU 🖕
+                    🖕 FACK YOU 🖕
 
 <img src="https://giffiles.alphacoders.com/120/120248.gif">
 
