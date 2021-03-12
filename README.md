@@ -29,4 +29,4 @@
 
 ##### Donate
 
-[![](https://img.shields.io/badge/Dana-bluek?logo=Dana&logoColor=blue&labelColor=white)](https://www.facebook.com/AINGK.BUDAK.BURIQ)
+[![](https://img.shields.io/badge/Dana-blue?logo=Dana&logoColor=blue&labelColor=white)](https://www.facebook.com/AINGK.BUDAK.BURIQ)
