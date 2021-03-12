@@ -1,14 +1,9 @@
  
-           ☠️ Welcome Tou Github Mamang Iwan ☠️
-
-<img src="https://github.com/IWAN-404/IWAN-404/blob/main/IWAN%20MAMANG%20HEKEL/FB_IMG_16151794358606576.jpg">
-
-
-
+           ☠️ Welcome Tou Github Mamang Iwan 
 
 MY SOCIAL MEDIA :
 
-
+img src="https://github.com/IWAN-404/IWAN-404/blob/main/IWAN%20MAMANG%20HEKEL/FB_IMG_16151794358606576.jpg">
 <a href="https://wa.me/6285766833276?text=Asalamualaikum+bang"><img src="https://github.com/Yayan-XD/Yayan-XD/blob/master/img/whatsapp.png" alt="alt text" width="20" height="20"></a>
 <a href="https://www.facebook.com/Yayanxyz"><img src="https://image.flaticon.com/icons/svg/174/174848.svg" alt="alt text" width="20" height="20"></a> <a href="https://squadcyberpeopleteam.blogspot.com/?m=1"><img src="https://raw.githubusercontent.com/darknethaxor/picture/main/PinClipart.com_omega-psi-phi-clip_1414856.png" alt="alt text" width="20" height="20"></a> <a href="https://youtube.com/channel/UCS7oHOu5H6nZbSmxSfnT56A"><img src="https://raw.githubusercontent.com/darknethaxor/picture/main/images%20(5).png" alt="alt text" width="20" height="20"></a> 
 &nbsp;&nbsp;     &nbsp;&nbsp;    &nbsp;&nbsp;   &nbsp;&nbsp;   &nbsp;&nbsp;   
