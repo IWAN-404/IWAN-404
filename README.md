@@ -6,7 +6,7 @@ Fackyou 🖕
 
 <img src="https://giffiles.alphacoders.com/120/120248.gif">
 
-My Sosil Media
+My Sosial Media
 
 [![](https://img.shields.io/badge/Facebook-blue?logo=Facebook&logoColor=blue&labelColor=white)](https://www.facebook.com/AINGK.BUDAK.BURIQ)
 [![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/+6285766833276?text=Asalamualaikum+bang)
