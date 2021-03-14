@@ -16,5 +16,3 @@ My Sosial Media
 [![](https://img.shields.io/badge/Whatsapp-CHAT-red?logo=Whatsapp&logoColor=Brightgreen&labelColor=white)](https://wa.me/+6285766833276?text=Asalamualaikum+bang)
 <img src="https://github.com/ROMI-AFRZL/ROMI-AFRZL/blob/main/Ngentod/status_me_status_90e259db678545f49a41faf12e095d58.jpg">
 
-
-src="https://upload.wikimedia.org/wikipedia/commons/7/72/Logo_dana_blue.svg" alt="alt text" width="70" height="50"></a>
